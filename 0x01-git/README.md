@@ -1,1 +1,2 @@
-yagi is blessing me
+yagi is blessing to me trully
+praise the lord
